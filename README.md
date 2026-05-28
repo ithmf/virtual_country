@@ -21,10 +21,10 @@ provide better structure to the area by doing the main work of building construc
 people will earn money by creating jobs or businesses and will boost the economy. people
 will go Better place for find better opportunity.
 
+Some villages become cities and then some people from other villages come to the city for work and for better facilities.
 This area is mainly divided into urban, semi-urban and rural areas.
-Some villages become cities and then some people from other villages come to the city for work and get better facilities.
 This will create diverse people in the society.
-Will guide some people, fool some people. Some people will give instructions. some people will
+Some will guide others, some will fool others. Some people will give instructions. some people will
 follow instructions. Some people do not follow instructions. some people will see
 Everything happens from a distance, like a audience.
 
@@ -37,12 +37,6 @@ Skills are more important in life. If you have the right and unique skills you w
 and live a happy life. No one teaches everything to everyone. If everyone learned a skill. It
 will become common and lose its uniqueness. No one will pay you more for common skills.
 All are depend on demand and supply.
-
-Most people like to fool other people. They'll be glad to have someone dumber than them.
-They would gather in groups and start a topic about popular things
-and collect some information about person interest. And create a fake environment that
-doesn't exist. and then they will use that person. All are not the same. Some people would be happy to have
-someone more powerful and intelligent than them. to become better.
 
 Languages, words, slogans, music, religion, rituals and stories are created by people for many purpose. The
 religion, rituals, stories and music are next level. People create or share stories for their own ulterior motives.
@@ -70,10 +64,14 @@ money bank will give you more money.
 People will collect things and memories that make them feel happy. People share
 information in their networks. If you are not connected to a network you will not be able to
 collect the necessary information about anything.
+Most people like to fool other people. They'll be glad to have someone dumber than them.
+They would gather in groups and start a topic about popular things
+and collect some information about person interest. And create a fake environment that
+doesn't exist. and then they will use that person. All are not the same. Some people would be happy to have
+someone more powerful and intelligent than them. to become better.
 
 People do not commit any crime where information about what is on the crime list is
-shared. Where information is not shared. People use this crime list to mislead people into
-committing.
+shared. Where information is not shared. People use this crime list to mislead people.
 
 As people come to know how life is, they come to school to guide people like them and tell
 them how life is. Your life won't be as good if you don't do anything.
