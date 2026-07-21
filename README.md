@@ -67,7 +67,7 @@ Most people like to fool other people. They'll be glad to have someone dumber th
 They would gather in groups and start a topic about popular things
 and collect some information about person interest. And create a fake environment that
 doesn't exist. and then they will use that person. All are not the same. Some people would be happy to have
-someone more powerful and intelligent than them. to become better.
+someone more powerful and intelligent than them to become better.
 
 People do not commit any crime where information about what is on the crime list is
 shared. Where information is not shared. People use this crime list to mislead people.
