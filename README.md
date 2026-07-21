@@ -23,10 +23,9 @@ will go Better place for find better opportunity.
 
 Some villages become cities and then some people from other villages come to the city for work and for better facilities.
 This area is mainly divided into urban, semi-urban and rural areas.
-This will create diverse people in the society.
-Some will guide others, some will fool others. Some people will give instructions. some people will
+Some will guide others, some will fool others. This will create diverse people in the society. Some people will give instructions. some people will
 follow instructions. Some people do not follow instructions. some people will see
-Everything happens from a distance, like a audience.
+everything happens from a distance, like a audience.
 
 We will create education policy for our country children. If a person knows about only one
 skill. They will do the same thing all their life even if the benefits are less. We have to teach
@@ -55,15 +54,15 @@ how to misuse it. Then everyone will get bored or if new technology comes then t
 send their computers to such a place where People may not know computers or may not have computers. 
 
 If the poor asks for clothes, we will ask the capitalists to make clothes, 
-then they will make or manufacturing the clothes and send them to the market. 
+then they will made and manufacturing the clothes and send them to the market. 
 In the end, all the clothes are kept in the shop but never reach the poor people. Clothes are information.
-People share information about something with another person. If
-the other person finds any unique information then they will share it with their network,
-which will benefit them in the future. It is like bank. bank give you money if you double the
-money bank will give you more money.
+you will not be able to collect the essential information about anything. If you are not connected to a network .
 People will collect things and memories that make them feel happy. People share
-information in their networks. If you are not connected to a network you will not be able to
-collect the necessary information about anything.
+information in their networks.
+1st person share information about something with 2nd person. If
+the 2nd person finds any unique information then they will share it with their network,
+which will benefit them in the future. It is like bank. bank give you money If you double the
+money then bank will give you more money.
 Most people like to fool other people. They'll be glad to have someone dumber than them.
 They would gather in groups and start a topic about popular things
 and collect some information about person interest. And create a fake environment that
